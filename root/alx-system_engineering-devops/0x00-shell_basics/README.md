@@ -1,1 +1,1 @@
-Money making
+Living the faith
